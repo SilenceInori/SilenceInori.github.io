@@ -1,0 +1,2 @@
+# SilenceInori.github.io
+blog
